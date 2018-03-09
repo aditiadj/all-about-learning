@@ -1,1 +1,1 @@
-# what-s-next
+Learning.. benkyou.. belajar!!!
