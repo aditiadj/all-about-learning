@@ -1,1 +1,1 @@
-Learning.. benkyou.. belajar!!!
+Learn.. benkyou.. belajar!!!
